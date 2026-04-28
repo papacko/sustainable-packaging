@@ -17,7 +17,7 @@ Operating a state-of-the-art 50,000㎡ facility, we specialize in helping cafes,
 Our core production lines include:
 
 * **[Eco-Friendly Paper Cups](https://papacko.com/paper-cups/):** From double-wall insulation for hot coffee to PLA-lined cups for cold beverages, our precision forming machines ensure leak-proof reliability.
-* **[Sustainable Food Containers](https://papacko.com/food-containers/):** Durable, grease-resistant kraft boxes and salad bowls designed specifically for the rigorous demands of food delivery and takeaway.
+* **[Sustainable Food Containers](https://papacko.com/food-packaging-containers/):** Durable, grease-resistant kraft boxes and salad bowls designed specifically for the rigorous demands of food delivery and takeaway.
 * **Complete Accessories:** Fully customizable compostable lids, paper bags, and cup sleeves.
 
 ## Certified Manufacturing Excellence
