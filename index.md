@@ -1,7 +1,7 @@
 <div align="center">
   <a href="https://papacko.com"><b>Official Website</b></a> &nbsp; | &nbsp;
   <a href="https://papacko.com/paper-cups/"><b>Custom Paper Cups</b></a> &nbsp; | &nbsp;
-  <a href="https://papacko.com/food-containers/"><b>Kraft Food Containers</b></a> &nbsp; | &nbsp;
+  <a href="https://papacko.com/food-packaging-containers/"><b>Kraft Food Containers</b></a> &nbsp; | &nbsp;
   <a href="https://papacko.com/contact/"><b>Get a Quote</b></a>
 </div>
 
